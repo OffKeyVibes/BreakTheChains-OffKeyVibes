@@ -1,15 +1,15 @@
-Break The Chains
-by OffKeyVibes
+# Break The Chains
+**by OffKeyVibes**
 
-Writer: TimH
-Archive Owner: x26dotapp
-Finalized: 2026-03-16
+Writer: Tim H  
+Archive Owner: x26dotapp  
+Finalized: 2026-03-16  
 
-Original lyrics. All rights reserved.
-Do not copy, redistribute, or republish without permission.
+Original lyrics. All rights reserved. Do not copy, redistribute, or republish without permission.
 
 ---
 
+```text
 A lot to do 
 So little time
 
@@ -23,10 +23,10 @@ Make up your mind
 It's do or die
 
 Move on decide
-or else it's suicide. 
-
+or else it's suicide.
 ---
 
+```text
 Take it and break it and push a little more. 
 Every fucken day, we try to break the mold.
 
@@ -35,9 +35,9 @@ No one gives a flying fuck about your day.
 
 Can't take this shit, let's settle the score.
 Land a good hit, straight to the fucken floor.
-
 ---
 
+```text
 When will it change.
 Don't be afraid. 
 
@@ -49,9 +49,9 @@ It's all decay.
 
 Take me apart.
 N make a new start.
-
 ---
 
+```text
 Take it and break it and push a little more. 
 Every fucken day, we try to break the mold.
 
@@ -60,9 +60,9 @@ No one gives a flying fuck about your day.
 
 Can't take this shit, let's settle the score.
 Land a good hit, straight to the fucken floor.
-
 ---
 
+```text
 Covered in sweat. 
 I wake, no rest.
 
@@ -74,9 +74,9 @@ My mind's a mess.
 
 Get out of bed.
 Just like the rest.
-
 ---
 
+```text
 Take it and break it and push a little more. 
 Every fucken day, we try to break the mold.
 
@@ -85,12 +85,12 @@ No one gives a flying fuck about your day.
 
 Can't take this shit, let's settle the score.
 Land a good hit, straight to the fucken floor.
-
 ---
 
+```text
 Can't take this shit, let's settle the score.
 Land a good hit, straight to the floor.
 
 Burning with rage, all in my veins.
 All I gotta do, is just break the chains. 
----
+```
