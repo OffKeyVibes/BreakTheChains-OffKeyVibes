@@ -1,0 +1,95 @@
+Break The Chains
+**by OffKeyVibes**
+
+---
+
+A lot to do 
+So little time
+
+Eating alive
+On the inside
+
+Death at your door
+Nowhere to go 
+
+Make up your mind 
+It's do or die
+
+Move on decide
+or else it's suicide. 
+
+---
+
+Take it and break it and push a little more. 
+Every fucken day, we try to break the mold.
+
+Give em hell to paay, Fuck the shit they say
+No one gives a flying fuck about your day.
+
+Can't take this shit, let's settle the score.
+Land a good hit, straight to the fucken floor.
+
+---
+
+When will it change.
+Don't be afraid. 
+
+Just rearrange.
+The blood stained.
+
+Eating away.
+It's all decay.
+
+Take me apart.
+N make a new start.
+
+---
+
+Take it and break it and push a little more. 
+Every fucken day, we try to break the mold.
+
+Give em hell to paay, Fuck the shit they say
+No one gives a flying fuck about your day.
+
+Can't take this shit, let's settle the score.
+Land a good hit, straight to the fucken floor.
+
+---
+
+Covered in sweat. 
+I wake, no rest.
+
+Heavy the weight.
+Upon my chest.
+
+Lost in my head.
+My mind's a mess.
+
+Get out of bed.
+Just like the rest.
+
+---
+
+Take it and break it and push a little more. 
+Every fucken day, we try to break the mold.
+
+Give em hell to paay, Fuck the shit they say
+No one gives a flying fuck about your day.
+
+Can't take this shit, let's settle the score.
+Land a good hit, straight to the fucken floor.
+
+---
+
+Can't take this shit, let's settle the score.
+Land a good hit, straight to the floor.
+
+Burning with rage, all in my veins.
+All I gotta do, is just break the chains. 
+---
+
+
+
+
+
+
