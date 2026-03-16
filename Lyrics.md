@@ -1,5 +1,12 @@
 Break The Chains
-**by OffKeyVibes**
+by OffKeyVibes
+
+Writer: TimH
+Archive Owner: x26dotapp
+Finalized: 2026-03-16
+
+Original lyrics. All rights reserved.
+Do not copy, redistribute, or republish without permission.
 
 ---
 
@@ -87,9 +94,3 @@ Land a good hit, straight to the floor.
 Burning with rage, all in my veins.
 All I gotta do, is just break the chains. 
 ---
-
-
-
-
-
-
