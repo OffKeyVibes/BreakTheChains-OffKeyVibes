@@ -15,7 +15,7 @@ Original lyrics. All rights reserved. Do not copy, redistribute, or republish wi
 A LOT — TO DO — NO TIME
 SO LIT-TLE — TIIIIIIIIIME
 
-EAT-ING — A-LIIIVE
+EAT-ING ME— A-LIIIVE
 ON THE — IN-SIIIDE
 
 DEATH AT — YOUR DOOR
