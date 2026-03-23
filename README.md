@@ -6,7 +6,7 @@ Artist: OffKeyVibes
 Writer: TimH  
 Archive Owner: x26dotapp  
 Status: Final lyrics archive  
-Finalized: 2026-03-16
+Finalized: 2026-03-23
 
 <p align="center">
   <img src="assets/break-the-chains-cover.png" alt="Break The Chains Cover" width="420">
