@@ -12,8 +12,8 @@ Original lyrics. All rights reserved. Do not copy, redistribute, or republish wi
 ```text
 ( COUNT: 1 & 2 & 3 & 4 & )
 
-A LOT — TO DO — NO TIIIME
-SO LIT-TLE — TIIIME
+A LOT — TO DO — NO TIME
+SO LIT-TLE — TIIIIIIIIIME
 
 EAT-ING — A-LIIIVE
 ON THE — IN-SIIIDE
